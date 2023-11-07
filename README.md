@@ -1,4 +1,4 @@
-Urbanclap is a leading Indian startup that operates an online marketplace connecting customers with local professionals for various home and beauty services. To help more businesses enter this rapidly growing on-demand economy, Zipprr offers a fully featured <a href="https://zipprr.com/category/urbanclap-clone/">Urbanclap clone script</a>.
+Urbanclap is a leading Indian startup that operates an online marketplace connecting customers with local professionals for various home and beauty services. To help more businesses enter this rapidly growing on-demand economy, Zipprr offers a fully featured <a href="https://zipprr.com/urbanclap-clone/">Urbanclap clone script</a>.
 
 <h2><b>Key Features Of UrbanClap Like Website</b></h2>
 
